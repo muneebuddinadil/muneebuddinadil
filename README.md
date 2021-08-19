@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @muneebuddinadil
+- 👀 I’m interested in coding!
+- 🌱 I’m currently pursuing my masters from Lakehead University.
+- 📫 Email me at kadil@lakeheadu.ca
